@@ -30,14 +30,14 @@ mind.
 
 My estimates may end up being wildly wrong some years from now—in either
 direction. But I am pretty sure that the overall upward trend will continue for
-decades to come. The reason I say that is that, in general, ecologically
-speaking, females are the limiting resource in sexual reproduction and bear
-most of the costs of reproduction. Accordingly, females *choose* males according to
-*inter alia* competitive ability in providing resources for offspring.
-Notwithstanding claims made by social constructivists, subject matter experts
-generally believe much the same thing applies to *H. sapiens* as applies to the
-so-called "lower animals". In the case of human sociobiology, the outcome is
-the following:
+decades to come. The reason I say that is that begins with the fact that, in
+general, ecologically speaking, females are the limiting resource in sexual
+reproduction and bear most of the costs of reproduction. Accordingly, females
+*choose* males according to *inter alia* competitive ability in providing
+resources for offspring.  Notwithstanding claims made by social
+constructivists, subject matter experts generally believe much the same thing
+applies to *H. sapiens* as applies to the so-called "lower animals". In the
+case of human sociobiology, the outcome is the following:
 
 ![Forecast of CO2 ppm out to 2050](https://i.imgur.com/LoSPJfO.png "Yep, here it is again DDDDD:")
 
