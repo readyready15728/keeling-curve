@@ -30,29 +30,7 @@ mind.
 
 My estimates may end up being wildly wrong some years from now—in either
 direction. But I am pretty sure that the overall upward trend will continue for
-decades to come. The reason I say that is that begins with the fact that, in
-general, ecologically speaking, females are the limiting resource in sexual
-reproduction and bear most of the costs of reproduction. Accordingly, females
-*choose* males according to *inter alia* competitive ability in providing
-resources for offspring.  Notwithstanding claims made by social
-constructivists, subject matter experts generally believe much the same thing
-applies to *H. sapiens* as applies to the so-called "lower animals". In the
-case of human sociobiology, the outcome is the following:
-
-![Forecast of CO2 ppm out to 2050](https://i.imgur.com/LoSPJfO.png "Yep, here it is again DDDDD:")
-
-This is something you don't often hear about when discussing climate change,
-save perhaps when male greed is brought up. Even then, its roots in female mate
-choice are seldom ever recognized. The most important lesson to draw from all
-of this is that lots of meaningless talks and accords will not even be
-*Band-Aids* for the problem of climate change and, realistically, it's just
-going to get worse and worse and worse every year, unless and until the root
-problem is addressed. That root problem is normal human behavior and it can
-only ever be solved if said behavior is policed out of existence. As gloomy as
-the overall outlook is, there is one cause for optimism: advances in genetic
-engineering, AI, robotics, neural interfaces etc. are coming into being just in
-time to make the required global police state feasible, with strict control over
-population and consumption numbers, that can finally tackle climate change!
-:DDDDD Here's to a better future:
-
-![Dialog box from Sid Meier's Alpha Centauri confirming choice to nerve staple unruly citizens](https://i.imgur.com/JlZZyI8.png "Everything went better than expected :DDDDD")
+decades to come. Aggregate human behavior in this area is highly defective and
+any solution to our global problems with climate change will involve extensive
+modification of the same, and not solely through education as many seem to
+believe.
