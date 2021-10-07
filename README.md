@@ -30,7 +30,5 @@ mind.
 
 My estimates may end up being wildly wrong some years from now—in either
 direction. But I am pretty sure that the overall upward trend will continue for
-decades to come. Aggregate human behavior in this area is highly defective and
-any solution to our global problems with climate change will involve extensive
-modification of the same, and not solely through education as many seem to
-believe.
+decades to come. As of October 2021, I'm only off by about .25 ppm. What can be
+done?
